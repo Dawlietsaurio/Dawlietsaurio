@@ -1,5 +1,5 @@
 - 👋 Wuenas, Yo soy el @Dawlietsaurio
-- 🎧 Me gusta el anime y Miku Nakano 
+- 🎧 Me gusta el anime Miku Nakano, Esdeaht and Erza 
 - 🎸 Escucho rock en español 
 - 💞️ Como me pone Miku Nakano
 - 🀄 aña
